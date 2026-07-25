@@ -128,6 +128,7 @@ GCAF26-ID-000-3474
 
 ### **➡️ [DAFTAR SEKARANG](https://docs.google.com/forms/d/e/1FAIpQLSfvBy0GqZPZpzC3aa6TKB5q3CMV9124cbsX4Ytv95O_plxN5w/viewform?usp=pp_url&entry.600268542=__other_option__&entry.600268542.other_option_response=GCAF26-ID-000-3474)**
 
+### ** [Konfirmasi Pendaftaran Anggota Guild](https://docs.google.com/forms/d/e/1FAIpQLSeI8wALwo2EJDi3hdhXnYAPfG53Kzy7qUaFRbwlmtZ_XANdfQ/viewform?usp=pp_url&entry.1917463783=Ya&entry.1989840091=5) **
 ---
 
 # 💡 Kenapa Harus Bergabung Lewat Guild KKGI?
