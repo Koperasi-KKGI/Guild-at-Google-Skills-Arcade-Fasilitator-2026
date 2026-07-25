@@ -179,3 +179,9 @@ Semua bisa kamu dapatkan secara **GRATIS!**
 
 ### **Angga Purwana**
 (**The Guild Master**) @ **Google Skills Arcade Fasilitator 2026** ~ (via Dicoding)
+
+---
+
+Indeks
+
+- [750 Kredit Google Skills](https://github.com/Koperasi-KKGI/Guild-at-Google-Skills-Arcade-Fasilitator-2026/blob/main/1/750%20KREDIT%20dari%20GOOGLE%20SKILLS.md)
