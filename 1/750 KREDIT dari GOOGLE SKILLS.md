@@ -411,3 +411,11 @@ Selamat belajar, selamat bereksperimen, dan semoga perjalananmu di Google Skills
 **See You in Google Skills Arcade!**
 
 </div>
+
+[![Resource 001](https://github.com/Koperasi-KKGI/Guild-at-Google-Skills-Arcade-Fasilitator-2026/blob/main/1/DAPATKAN-750-KREDIT-GOOGLE-SKILLS-001.jpg)](#)
+[![Resource 001](https://github.com/Koperasi-KKGI/Guild-at-Google-Skills-Arcade-Fasilitator-2026/blob/main/1/DAPATKAN-750-KREDIT-GOOGLE-SKILLS-002.jpg)](#)
+[![Resource 001](https://github.com/Koperasi-KKGI/Guild-at-Google-Skills-Arcade-Fasilitator-2026/blob/main/1/DAPATKAN-750-KREDIT-GOOGLE-SKILLS-003.jpg)](#)
+[![Resource 001](https://github.com/Koperasi-KKGI/Guild-at-Google-Skills-Arcade-Fasilitator-2026/blob/main/1/DAPATKAN-750-KREDIT-GOOGLE-SKILLS-004.jpg)](#)
+[![Resource 001](https://github.com/Koperasi-KKGI/Guild-at-Google-Skills-Arcade-Fasilitator-2026/blob/main/1/DAPATKAN-750-KREDIT-GOOGLE-SKILLS-005.jpg)](#)
+[![Resource 001](https://github.com/Koperasi-KKGI/Guild-at-Google-Skills-Arcade-Fasilitator-2026/blob/main/1/DAPATKAN-750-KREDIT-GOOGLE-SKILLS-006.jpg)](#)
+[![Resource 001](https://github.com/Koperasi-KKGI/Guild-at-Google-Skills-Arcade-Fasilitator-2026/blob/main/1/DAPATKAN-750-KREDIT-GOOGLE-SKILLS-007.jpg)](#)
